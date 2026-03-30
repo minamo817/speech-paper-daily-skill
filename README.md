@@ -1,0 +1,1 @@
+# speech-paper-daily-skill
